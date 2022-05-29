@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @gilfishdad
 - 👀 I’m interested in God and the ocean.
 - 🌱 I’m currently learning about computers and software.
-- 💞️ I’m looking to collaborate on many projects where i can ad value.
+- 💞️ I’m looking to collaborate on many projects where i can add value.
 - 📫 How to reach me tom@enjoyoceanadventure.com
 
 <!---
